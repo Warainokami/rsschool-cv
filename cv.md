@@ -1,4 +1,3 @@
-![image](file:///C:/Users/ekaterina%20viktorovna/Downloads/11.jpg)
 # **Vyacheslav Suzdaltcev**
 ***
 ## My Contact Info 
